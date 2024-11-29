@@ -1,1 +1,1 @@
-Este é um codigo de cunhunho estudantil
+Este é um codigo de cunho esducacional
